@@ -8,3 +8,4 @@
 ![binance ](https://user-images.githubusercontent.com/81548231/112913833-2ee7dd00-90c0-11eb-9753-1b07eb7349fb.jpeg)
 ![binance inversion](https://user-images.githubusercontent.com/81548231/112913836-314a3700-90c0-11eb-8450-0e3f9bb9ddaa.jpeg)
 ![billetera-virtual-](https://user-images.githubusercontent.com/81548231/112913841-34452780-90c0-11eb-8210-d935e3120bb2.jpeg)
+
